@@ -239,4 +239,4 @@ Dark and Darker is available as a complete free version with all features and up
 Dive into the thrilling world of Dark and Darker today! Download your free version now and embark on an epic adventure.
 
 ---
-**Last updated:** 2026-09-30 00:59:30 UTC
+**Last updated:** 2026-09-30 06:33:22 UTC
